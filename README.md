@@ -1,2 +1,0 @@
-# Maulana-Ferdiansya
-Nama lengkap :
